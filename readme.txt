@@ -2,3 +2,7 @@
 Git is a free software distributed under the GPL.
 Git is an useful tool.
 Git is easy to learn.
+JBZGCuk 
+n.sZ./.,ZSIU
+xgsnsda.l
+xkj,lsp;
